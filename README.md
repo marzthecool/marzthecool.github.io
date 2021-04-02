@@ -1,2 +1,0 @@
-# marzthecool.github.io
- WebResume
